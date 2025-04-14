@@ -1,0 +1,1 @@
+This is a very basic tribute to Jesus, I am still a beginner but I wish to do coding for a living as I enjoy tech. Despite coding annoying me quite often, I feel every good thing that is worth fighting for will have dark moments.
